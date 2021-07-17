@@ -1,0 +1,1 @@
+Embora tenha muita carga horária de tarefas encarregado aos alunos, estou aprendendo muitas coisas interessantes com o treinamento.
